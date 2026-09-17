@@ -1,1 +1,5 @@
 # Wede
+Ubuntu Hope is a South African community-support organisation that focuses on helping communities through food support, education, mentorship, skills development and other forms of assistance. The organisation is guided by the philosophy of Ubuntu, which promotes caring, cooperation and helping others. Ubuntu Hope supports hunger-relief initiatives and has introduced **The Salad Table**, a hydroponic food-growing system designed to help nonprofit organisations produce fresh food for their communities. The organisation also supports grassroots nonprofit organisations by providing funding, volunteers and resources that can help them continue their work. Through these activities, Ubuntu Hope aims to address basic needs such as food while also supporting stronger and more sustainable communities. (Ubuntu Hope, 2026a; Ubuntu Hope, 2026b).
+https://ubuntu-hope.co.za/?utm_source=chatgpt.com
+https://ubuntu-hope.co.za/hydroponic-revolution/?utm_source=chatgpt.com
+https://ubuntu-hope.co.za/causes/?utm_source=chatgpt.com
